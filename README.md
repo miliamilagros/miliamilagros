@@ -2,8 +2,6 @@
 
 Socióloga. Trabajo en opinión pública y consultoría política: donde los datos y la investigación social se encuentran para analizar tendencias y patrones sociales.
 
-📍 Buenos Aires, Argentina
-
 ---
 
 ## Sobre mí
