@@ -6,8 +6,8 @@ Socióloga. Trabajo en opinión pública y consultoría política: donde los dat
 
 ## Sobre mí
 
-- 📊 **Project Analyst** en [2R Consultoría](https://doserre.com) — estudios cuantitativos y cualitativos de opinión pública.
-- 🔬 **Analista de investigación** en Pulsar UBA — estudios percepción social
+- 📊 **Project Analyst** en [2R Consultoría](https://doserre.com.ar/) — estudios cuantitativos y cualitativos de opinión pública
+- 🔬 **Analista de investigación** en [Pulsar UBA](https://pulsar.uba.ar/) — estudios de percepción social
 - 📚 Cursando posgrado en opinión pública y consultoría política — FLACSO
 - 🎓 Cursando *Principles of Market Research* — University of Georgia / MRII
 
